@@ -1,0 +1,1 @@
+# metrekareye_gore_ev_fiyat_tahmini
